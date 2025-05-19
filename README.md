@@ -1,1 +1,0 @@
-# kotsur-anton-project
